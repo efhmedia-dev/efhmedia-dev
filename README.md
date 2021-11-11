@@ -9,7 +9,7 @@
 ### I'm Emirhan Türker - Student.
 
 - 📚 Learning English fot better communication 😉
-- 💪🏼 Future Goals: Be a police.
+- 💪🏼 Future Goals: Be a neurologist.
 - ⚡ Fun fact: I love to play FIFA and CSGO 🎱.
 - I've a magazine website. Posting news for Turkey in [Kargı Manşet](https://kargimanset.xyz)
 
