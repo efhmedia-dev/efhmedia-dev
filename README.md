@@ -6,7 +6,7 @@
 <img align="right" alt="GIF" height="160px" src="https://media.giphy.com/media/du3J3cXyzhj75IOgvA/giphy.gif" />
 
 
-### I'm Emirhan Türker - Student.
+### I'm Emirhan - Student.
 
 - 📚 Learning English fot better communication 😉
 - 💪🏼 Future Goals: Be a neurologist.
