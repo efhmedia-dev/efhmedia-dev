@@ -8,7 +8,7 @@
 
 ### I'm Emirhan - Student.
 
-- 📚 Learning English fot better communication 😉
+- 📚 Learning English for better communication 😉
 - 💪🏼 Future Goals: Be a neurologist.
 - ⚡ Fun fact: I love to play FIFA and CSGO 🎱.
 - I've a magazine website. Posting news for Turkey in [Kargı Manşet](https://kargimanset.xyz)
